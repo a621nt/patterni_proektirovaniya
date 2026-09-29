@@ -1,0 +1,1 @@
+# patterni_proektirovaniya
